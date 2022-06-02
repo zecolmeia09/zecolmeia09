@@ -1,1 +1,1 @@
-ela/deles
+ele/delas
