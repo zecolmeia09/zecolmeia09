@@ -1,5 +1,5 @@
-<b>@_poiate<b>
+⛓<b>@_poiate<b>
   
-<b>@jade_rm0<b>
+💙<b>@jade_rm0<b>
   
-<b>zecolandia<b>
+📍<b>zecolandia<b>
